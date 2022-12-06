@@ -1,0 +1,1 @@
+# segundoInfo_PruebaDiagnostica
